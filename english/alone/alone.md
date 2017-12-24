@@ -76,3 +76,5 @@ Bella ushers Kristy on to her bed and calm her down.
 Bella palms her head while Kristy gets normalized.
 
 Stranger smirks seeing Kristy and escape into the dark.
+
+And then alarm bell rang Kristy realise she was having a bad dream but she didn't know, her realisation of having a dream was a dream itself.
